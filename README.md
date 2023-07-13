@@ -1,2 +1,0 @@
-# Skyproportfolio
-My portfolio
